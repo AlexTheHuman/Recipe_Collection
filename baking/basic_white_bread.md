@@ -4,7 +4,7 @@
 * 5g (1%) Instant Yeast
 
 1. Combine 50g of flour with 250g of water in a medium sauce pan. Cook over medium heat, stirring, until gelatinized.
-1. Set aside to cool to < 90f, about 15 minutes.
+1. Set aside to cool to < 100f, about 15 minutes.
 1. Combine remaining flour (450g), remaining water (125g), gelatinized flour mixture, salt, and yeast in the bowl of standmixer.
 1. Using dough hook, knead at medium speed for 8 minutes, starting slowly to avoid throwing flour everywhere.
 1. Form into ball and transfer to oiled bowl and let raise at room temp (~75f) for 1 hour.

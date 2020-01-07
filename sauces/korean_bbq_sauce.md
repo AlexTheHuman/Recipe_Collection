@@ -6,7 +6,7 @@
 * 1 tablespoon of chili paste
 * 1-1/2 teaspoons sesame oil
 * 1 teaspoon coarse ground black pepper
-* 1 inch of ginger, peeled and sliced into thick-ish slices
+* 1 inch of ginger, peeled and sliced into 4 or 5 slices
 * 5 cloves fresh garlic, coarsely crushed
 * 1 tablespoon cornstarch
 * 1 tablespoon water

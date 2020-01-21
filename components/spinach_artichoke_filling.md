@@ -3,7 +3,7 @@
 * 1 12oz bag of frozen spinach
 * 1 Large garlic clove, minced
 * 1 14oz can artichoke hearts, drained
-* 1/2 cup mayonaise
+* 1/2 cup [mayonaise](https://github.com/AlexTheHuman/Recipe_Collection/blob/master/sauces/mayonnaise.md)
 * Kosher salt, black pepper, cayenne, paprika, hot sauce
 
 1. Heat oil in a 10-inch stainless steel skillet over medium heat until shimmering. 

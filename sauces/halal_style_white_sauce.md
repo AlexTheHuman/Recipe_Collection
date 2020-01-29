@@ -24,8 +24,8 @@
 * 8 teaspoons black pepper
 * Kosher salt
 
-1. Place egg, lemon juice, mustard, and garlic in blender.
+1. Place egg, 2 Tbsp lemon juice, mustard, and garlic in blender.
 1. Start blender on lowest speed, and slowly drizzle in oil as mayo forms.
-1. Stop blender and add yogurt, sugar, vinegar, lemon juice, parsley, and black pepper to blender.
+1. Stop blender and add yogurt, sugar, vinegar, 4 tsp lemon juice, parsley, and black pepper to blender.
 1. Pulse until well combined.
 1. Season to taste with salt, pulsing blender to mix.

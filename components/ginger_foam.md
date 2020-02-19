@@ -1,4 +1,4 @@
-* 75g fresh ginger, peeled
+* 75g fresh ginger, peeled and sliced into small pieces
 * 75g sugar
 * 3g salt
 * 300g filtered water

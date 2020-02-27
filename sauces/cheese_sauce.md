@@ -1,8 +1,8 @@
-* 100% Cheese
-* 100% Milk or other fluid
-* 4% Sodium Citrate
-* 1.33% Salt
-* 0.5% Sodium Hexametaphosphate
+* 100% (1 lb, 453g) Cheese
+* 100% (1 lb, 453g) Milk or other fluid
+* 4% (18.12g) Sodium Citrate
+* 1.33% (6g) Salt
+* 0.5% (2.3g) Sodium Hexametaphosphate
 
 **Sous vide**
 1. Cube cheese, and seal everything in a bag.

@@ -3,7 +3,7 @@
 * 1/4 cup packed brown sugar
 * 1/4 cup reduced-sodium soy sauce
 * 2 teaspoons sesame oil
-* 1/4 teaspoon ground ginger
+* 1/4 teaspoon ground ginger- or tube ginger
 * 1/4 teaspoon crushed red pepper flakes
 * 1/4 teaspoon pepper
 

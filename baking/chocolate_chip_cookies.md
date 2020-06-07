@@ -22,9 +22,8 @@
 1. Remove the paddle and bowl from the mixer. 
 1. Make sure to use a bowl scraper to flip and fold the dough near the bottom of the bowl. 
 1. Scrape and fold until the dough is thoroughly mixed, with no visible streaks of individual ingredients.
-1. Using a #10 scoop as a guide, portion out 100-gram balls of cookie dough. 
+1. Scoop dough with cookie scoop
 1. Space them evenly on the prepared half-sheet trays. 
-1. You should have 15 cookies total.
 1. Put the sheet pans in the refrigerator to rest for at least 2 hours. 
 1. The ideal resting time is 4 hours.
 1. Set trays at room temp for one hour to warm up a little.

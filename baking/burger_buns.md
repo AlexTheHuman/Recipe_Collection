@@ -1,11 +1,11 @@
- 1 cup milk
-½ cup water
-¼ cup butter
-4 ½ cups all-purpose flour
-1 (.25 ounce) package instant yeast
-2 tablespoons white sugar
-1 ½ teaspoons salt
-1 egg 
+* 1 cup milk
+* ½ cup water
+* ¼ cup butter
+* 4 ½ cups all-purpose flour
+* 1 (.25 ounce) package instant yeast
+* 2 tablespoons white sugar
+* 1 ½ teaspoons salt
+* 1 egg 
 
 
 

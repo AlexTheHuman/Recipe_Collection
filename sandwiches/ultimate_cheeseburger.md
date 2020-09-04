@@ -11,7 +11,7 @@
 
 1. Slice brisket into cubes that will fit into meat grinder.
 1. Toss brisket cubes with salt, gelatin, black pepper, and garlic powder.
-1. Place strips in freezer for ~45 minutes until stiff but not solid.
+1. Place cubes in freezer for ~45 minutes until stiff but not solid.
 1. Gind brisket with 3mm plate.
 1. Add ground brisket to bowl of stand mixer with egg.
 1. Mix on low speed until just combined.
